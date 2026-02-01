@@ -1,0 +1,1 @@
+This repository contains project files related to digital marketing, content creation, advertising, and website development. It showcases work including ad creatives, audit reports, keyword research, and campaign materials.
